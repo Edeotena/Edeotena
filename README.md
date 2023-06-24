@@ -1,6 +1,5 @@
 - 👋 Hi! I’m @Edeotena
-- 📫 You can text to me on telegram @edeotena_13
-
+- 📫 You can text to me on telegram @edeotena
 ---
 
 ### :hammer_and_wrench: Languages and Skills :
